@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JS00217
-- 👀 I’m interested in ...
+- 👀 I’m interested in ... learning ab computers, anime, skating
 - 🌱 I’m currently learning ... computer science
 - 💞️ I’m looking to collaborate on ... game dev
 - 📫 How to reach me ... ig:jaiden.spear
